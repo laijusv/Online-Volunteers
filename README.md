@@ -9,6 +9,6 @@ OUR PROJECTS
 5. Expanding the base of Responsible Humans - https://tggfct.org/membership/rhm-membership/							
 6. Assist in the livelihood mission: https://tggfct.org/activities/tgg-livelihood-mission/							
 7. Content writing & Graphic designing, web promotion,							
-8. Inviting people from across the world to participate in Responsible Human Mission
+8. Inviting people from across the world to participate in Responsible Human Mission.
 9. Providing shelter and food to stay alive for people in the street.
 10.Create RHM Centers across the world to promote sustainable and mininmalist living.  	
